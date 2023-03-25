@@ -1,9 +1,12 @@
 # HL不打样
 最新学习地址1：
 https:zztt四二点com  
-https:zztt四五点com  
+https:zztt五五点com  
 
 数字部分，40~55之间都可以尝试。
+
+发送任意消息到邮箱，自动获取黑料网最新
+【免翻墙】地址：155dizhi@gmail.com
 
 
 # 51吃瓜网 最新地址 👋 
